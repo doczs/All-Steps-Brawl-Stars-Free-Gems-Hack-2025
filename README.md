@@ -4,7 +4,7 @@ In the world of mobile gaming, players are always on the quest for resources tha
 Understanding Brawl Stars and Its Economy
 The game Brawl Stars is designed around a competitive and engaging multiplayer environment. To fully appreciate how to acquire Brawl Stars Free Gems, it's essential to understand the game's economy and what makes gems so valuable.
 
-<h2><a href="https://sites.google.com/view/brawl-stars-free-gems-new-meth/">LEARN MORE</a></h2>
+<h2><a href="https://allresources.xyz/brawlstars.html/">LEARN MORE</a></h2>
 
 The Importance of Gems in Brawl Stars
 Gems are one of the primary currencies within Brawl Stars, and they hold immense value:
